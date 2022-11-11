@@ -2,7 +2,7 @@
 ## Retour sur la conférence d'Eidos
 
 ### Intérêt
-Quelle partie de la conférence t'a intéressé le plus? Pourquoi? (2 à 3 lignes) 
+La partie de la conférence qui ma le plus interesser est quand ils a parler de tout ces accomplissement qui a fait dans ca vie en travaillant dans le domain des jeux video. 
 
 ### Travail
-Suite à la conférence, aimerais-tu travailler dans le monde du jeu vidéo? Si oui, qu'est-ce qui t'a motivé dans la conférence et si non, pourquoi? (2 à 3 lignes)
+Oui, suite a la conferencre j'ai encore plus le gout de travailler dans le domaine des jeux video. ce qui ma motiver etait d'entendre toutes les grosse liscence avec qui il a travailler et cela me motive plus que jamais de travailler dans ce domaine.
