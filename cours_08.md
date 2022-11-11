@@ -2,10 +2,10 @@
 ## Retour sur la sortie
 
 ### Oeuvre préférée
-À Sid Lee, J'ai beaucoup aimer le projet "build the vote"  qui permet d'aller voter sans pouvoir bouger. Je trouve que c'est vraiment interessant de pouvoir allez voter dans un jeu video, car defois il y a des personnes qu'il trouver plate le fait d'aller voter.
+Au centre phi, j'ai enormement aimer l'oeuvre "GOLIATH". Car, l'histoire etait bonne et il y avait asser d'interaction pour que sa sappelle un jeux a la place de juste une histoire.
 
 
 
 ### Oeuvre la moins appréciée
-Par contre, j'aime moins l'oeuvre "portage". Car, j'ai l'impression qu'ils font la promotion de l'alchool. Cette boisson peut etre dangereuse pour la santé et peut vous mettre dans des mauvaise situation.
+J'ai moins aimer le jeux "reeducated",Car, il n'y avit pas d'interaction, cela rendait le jeux plate. L'histoire est bonne et interessante mias on peut sendormir facilement a cause du manque d'interaction.
 
