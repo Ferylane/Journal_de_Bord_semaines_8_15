@@ -2,7 +2,7 @@
 ## Retour sur la visite de SidLee et PixMob
 
 ### Intérêt
-Laquelle des conférences as-tu préféré et pourquoi? (2 à 3 lignes) 
+j'ai préférer la conférence avec PixMob, car, j'ai beaucoup aimer le coordination de lumiere avec la musique, cetait vraiment interessant. Alors que, SidLee on a visiter les locaux, mais, j'ai trouver sa un peu court, je trouve que on a pas asser aller en profondeur dans les locaux.
 
 ### Travail
-Te verrais-tu travailler dans une des deux entreprises? Si oui, laquelle et pour quelle raison? Si non, pourquoi? (2 à 3 lignes)
+je pense que j'aimerai mieux travailler chez SidLee, car, les horaires sont quand meme flexible,et il y a des activiter chaque semaine. J'aimerais mieux proggramer des jeux video que de programmer des lumiere (meme si j'aimerai ca aussi).
